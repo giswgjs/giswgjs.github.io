@@ -1,1 +1,2 @@
 # Uthred von Bebbanburg
+In the middle of the ninth century in England, born as a Christian, Uthred was kidnapped by Vikings when he was twelve and from then on lived as a pagan. Will he fight for the Christian Saxons or the pagan Vikings from now on?
