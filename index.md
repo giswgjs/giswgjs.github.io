@@ -6,3 +6,6 @@ In the middle of the ninth century in England, born as a Christian, Uthred was k
 * pagan, worships to Thor
 * ambivalent throughout his live, fighting for the saxons against the vikings
 * very trustful
+
+> Wyrd bid ful araed
+> Fate is inevitable
